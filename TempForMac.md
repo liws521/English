@@ -1,0 +1,12 @@
+- How can we discern the trivial many from the vital few?
+- discern
+- trivial
+- vital
+
+- escape
+- perk
+- journal
+- journalist
+- embrace
+- wisdom
+- music, 喜欢你, 稻香
